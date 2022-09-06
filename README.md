@@ -1,4 +1,4 @@
-# syfa
-Selamat ulang tahun Syfa
+# Adinda
+Selamat ulang tahun Adinda
 
-https://fdciabdul.github.io/syfa/
+https://www.instagram.com/dinurmaulanaa_/
